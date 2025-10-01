@@ -46,3 +46,5 @@ Consumer behavior segmentation
 Price sensitivity and distribution
 
 Correlation and trend detectio
+
+For questions or collaboration https://www.linkedin.com/in/miar-elhelw-113700277/
